@@ -1,31 +1,29 @@
 #collaborate
 
+## Recepie 
 
+### Vegan Dog Food
 
+Luckily, there are quite a lot of vegan-friendly foods that are safe for my little Nola to enjoy on a vegan diet
 
+**Some of these foods include:** 
 
+   - Dark, leafy greens (*such as spinach*)
 
+   - Lentils
 
+    - Rice
 
+    - Broccoli
 
+    - Carrots
 
+    - Quinoa
 
+    Certain types of beans (note: beans can cause flatulence in dogs- use beans sparingly)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+    ![vegan Dog](vegan_dog_food_4_-_vegan_dog.jpeg)
+    
 
 ## Pak Choi with Ginger and Seitan
 
@@ -43,6 +41,7 @@
 1.  Wash and cut everything to size and comfortable degree of cleanliness.
 2.  Fry the garlic and ginger and seitan a little bit before adding the pak choi to the wok. It's cool if there is still a little water on the leaves so that it steams up nicely. Add a little bit of soy sauce just to cut the frying oil down. Maybe also a little bit of ginger oil. 
 3. put the lid on and let cook for a couple minutes until the pak choi is done.
+
 
 
 
