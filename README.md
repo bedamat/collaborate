@@ -1,7 +1,5 @@
 #collaborate
 
-## Recepie 
-
 ### Vegan Dog Food
 
 Luckily, there are quite a lot of vegan-friendly foods that are safe for my little Nola to enjoy on a vegan diet
