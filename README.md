@@ -10,7 +10,7 @@ Luckily, there are quite a lot of vegan-friendly foods that are safe for my litt
 
    - Dark, leafy greens (*such as spinach*)
 
-   - Lentils
+    - Lentils
 
     - Rice
 
@@ -24,6 +24,26 @@ Luckily, there are quite a lot of vegan-friendly foods that are safe for my litt
 
     ![vegan Dog](vegan_dog_food_4_-_vegan_dog.jpeg)
     
+    
+ ##   NOLA’S FAVORITE RECIPE
+
+### Ingredients:                                                                                                          
+- 6 cups of filtered water
+- 3 ¾ cups of organic Indian basmati (white) rice
+- ½ cup of organic red quinoa
+- 16 oz. package of frozen organic mixed vegetables
+- ¾ cup of nutritional yeast
+- ½ cup ground flax seed
+- ¾ cup of olive oil or sunflower oil
+- 20 ounce package of organic firm tofu, crumbled
+- 15 ounce can of organic black beans, drained
+- 15 ounce can of organic garbanzo beans, drained
+- 1 teaspoon salt
+- 2 ½ tablespoons Vegedog supplement
+
+### Directions:
+
+In a large soup pot bring water to a boil. Add rice and quinoa. Cover, reduce heat to low and cook until rice and quinoa are done (approximately 15 minutes). Turn off heat. Add frozen vegetables to the pot and cover again to let them steam a little bit. Let rest for ten minutes. Add additional ingredients and mix.
 
 ## Pak Choi with Ginger and Seitan
 
